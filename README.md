@@ -78,6 +78,6 @@ updated:<2024-12-31  # 2024年12月31日前更新的訂單
 ---
 
 📞 **聯絡資訊**
-- Instagram: [@luluchen_shop](https://instagram.com/luluchen_shop)
+- Instagram: [@arceus_fcy
 - LINE: @luluchen326
 - Email: luluchen326@gmail.com
